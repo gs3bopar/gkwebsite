@@ -1,1 +1,0 @@
-gsbopar.github.io
